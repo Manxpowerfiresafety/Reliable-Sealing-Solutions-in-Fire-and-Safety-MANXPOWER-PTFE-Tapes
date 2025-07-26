@@ -20,3 +20,15 @@ As a recognized name in fire safety equipment, MANXPOWER is synonymous with reli
 <h3>Final Words: Small Component, Big Protection</h3>
 In the world of fire and safety, even the smallest details can make a life-saving difference. MANXPOWER’s range of PTFE sealing tapes provides the confidence that every joint in your system is securely sealed. With a focus on quality, reliability, and performance, MANXPOWER PTFE Teflon Tapes are the smart choice for fire safety professionals and system installers.<br>
 <h5>Choose MANXPOWER—Where Safety Starts with the Details.</h5>
+<h3>Get in touch with us:</h3>
+<b>Visit: https://manximpex.com/ptfe-teflon-tape-2/ </b><br>
+<b>E-mail: info@manximpex.com </b><br>
+<b>Contact Number: +91- 7065192900, +91- 7428115550</b><br>
+<b>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006 </b><br>
+<h3>Follow us on:</h3>
+<b>Instagram: https://www.instagram.com/manximpex/ </b><br>
+<b>Facebook: https://www.facebook.com/manximpex/ </b><br>
+<b>LinkedIn: https://in.linkedin.com/company/manx-impex </b><br>
+<b>Youtube: https://www.youtube.com/c/ManxImpex  </b><br>
+<h3>Read our blog:</h3>
+<b>Hose Clamp in India: CS HOSE CLAMPS Leading the Way in Quality and Innovation: https://manximpex.com/hose-clamps-india/ </b>
